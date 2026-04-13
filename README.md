@@ -1,3 +1,3 @@
 # shahnshah
 <br>
-author- Shahnshah (mohammad)
+author- Shahnshah (mohammad shahnshah)
